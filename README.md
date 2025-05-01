@@ -1,0 +1,1 @@
+Clean City Connect – Smart Waste Pickup at Your Doorstep. Choose Your Waste Type, We'll Handle the Rest.Clean City Connect is a smart waste management platform that offers garbage pickup and drop-off services. Users can schedule pickups based on their convenience and select the type of waste — organic, recyclable, or hazardous — for efficient and eco-friendly disposal.
